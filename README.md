@@ -1,3 +1,3 @@
-# MinHyukMDPHD.github.io
+MinHyukMDPHD.github.io
 
-# minhyuk.md@gmail.com
+minhyuk.md@gmail.com
